@@ -6,5 +6,7 @@ Olá! Bem vindo ao meu livro de receitas :hand:
 
 - Pavê com cobertura de chocolate
 
+- Bolo de cenoura
+
   
 
